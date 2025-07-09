@@ -1,2 +1,2 @@
-# Termos
-Termos de privacidade!
+# Termos de Privacidade
+Termos de privacidade genéricos, para utilizar em trabalhos acadêmicos!
